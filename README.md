@@ -1,2 +1,2 @@
 # Hare Krishna
-Harer naamaiva kevalam.
+Harer naama Harer naama Harer naamaiva kevalam.
