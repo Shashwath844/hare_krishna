@@ -1,1 +1,2 @@
-# hare_krishna
+# Hare Krishna
+Harer naamaiva kevalam.
